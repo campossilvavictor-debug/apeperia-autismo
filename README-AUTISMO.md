@@ -1,0 +1,1 @@
+# Apeperia Acolhedora — versão com recursos para pessoas autistas
